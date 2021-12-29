@@ -1,1 +1,1 @@
-# 【中科大凌青-凸优化】(https://www.bilibili.com/video/BV1Jt411p7jE)
+# 【耶鲁大学公开课】(https://www.bilibili.com/video/BV1Kt411h7Ep)
